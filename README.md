@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Tartarughina
+- 👋 Hi, I’m @tartarughina
 - 👀 I’m interested in turtles
 - 🌱 I’m currently learning how to feed turtles
 - 💞️ I’m looking to collaborate on feeding turtles
